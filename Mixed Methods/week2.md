@@ -1,0 +1,22 @@
+- Mixed methods study
+  - Multiple data sources
+  - How do you know which data is valid, trustworthy?
+    - How is the data made?
+- Qual Strengths
+  - Nuance
+  - Transferable
+  - Context dependent
+  - Individual stories
+- Quant Strengths
+  - Generalizable
+  - Broad strokes
+  - Repeatable
+- Challenges and Benefits
+  - Challenges
+    - Need to be skilled in both sets of methods
+    - Duration (data collection or analysis)
+    - Educating others about the value
+  - Benefits
+    - Strengths of both 
+    - New research questions 
+    - Divergence
