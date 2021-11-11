@@ -1,3 +1,5 @@
+# Mixed Methods: Week 2 (01/19/2021)
+
 - Mixed methods study
   - Multiple data sources
   - How do you know which data is valid, trustworthy?
