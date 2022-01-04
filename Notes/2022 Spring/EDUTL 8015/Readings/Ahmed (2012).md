@@ -1,5 +1,7 @@
 # On Being Included
 
+## Introduction
+
 - In the first few pages, I got a feel for the identity
   of the author. They appear to identify as non-white.
 - The author describes a lot of cool ideas related to
