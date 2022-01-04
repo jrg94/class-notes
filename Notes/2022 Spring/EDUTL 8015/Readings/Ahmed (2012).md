@@ -1,5 +1,7 @@
 # On Being Included
 
+Ahmed, S. (2012). On being included. Duke University Press.
+
 ## Introduction
 
 - In the first few pages, I got a feel for the identity
