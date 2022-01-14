@@ -28,6 +28,34 @@ Pages 1 - 18
   and methods, and a clear set of questions."
 - Ethnography contains so much data that you could spend
   a lifetime analyzing it
+- The focus of the work in this case was on showing the
+  effects of globalization on rural mexico
+- Drawing lines around competition
+- Living in the village was like camping for a year
+
+### Fieldwork
+
+- There is no wrong way to do ethnography: subjective or objective
+- Example
+  - Use of a household survey to collect demographics
+  - The survey above was built around themes observed
+  - Also used interviews: some formal, some informal
+  - Detailed observation
+- Seven stages of fieldwork
+  - Initial contact
+  - Culture shock
+  - Discovering the obvious
+  - The break
+  - Focusing
+  - Exhaustion
+  - Leaving
+- Trust is needed to get details about lives
+- Wearing many hats!
+  - Learning to cook
+  - Learning to farm
+- Ethics: are our participants doing illegal things?
+- **Ethnography does not fit positivism!**
+- Reaching the point of **theoretical saturation**
 
 ### Thoughts
 
@@ -36,3 +64,6 @@ Pages 1 - 18
   research I want to conduct.
 - I'm also thinking that ethnography sounds pretty
   awesome, and I'm not sure I'm qualified to do it. 
+- I really enjoy this reading! I feel like I can
+  see myself doing ethnography. I'm just not sure
+  what it would look like yet. 
