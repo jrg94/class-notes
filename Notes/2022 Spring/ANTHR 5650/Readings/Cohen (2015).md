@@ -67,3 +67,36 @@ Pages 1 - 18
 - I really enjoy this reading! I feel like I can
   see myself doing ethnography. I'm just not sure
   what it would look like yet. 
+
+## Chapter 1: Setting Up and Settling In (pg 19)
+
+- Good luck convincing future informants!
+- IRB baby!
+- No running water (weird thing to point out)
+
+### Before the Field (pg 21)
+
+- Some folks never make it to the field
+- Other folks leave the field quickly
+- Major preparations before heading to Mexico
+  - Learning Spanish
+  - Learning about Oaxaca
+
+### Why Santa Ana (pg 23)
+
+- Santa Ana is unknown for its textiles despite doing the same
+  work as a nearby town, Teotitlan
+- This fact allowed for the author to engage with the locals
+
+### Arriving (pg 25)
+
+- Lots of nervousness!
+- Met Don Felipe and Pablo
+- A ton of descriptions of the town
+- Dogs that sounded fierce LOL
+- Bouncing back and forth between Spanish and English
+  - Interesting to think informants might want to practice English
+  
+## Our Home (pg 30)
+
+- 
