@@ -97,6 +97,38 @@ Pages 1 - 18
 - Bouncing back and forth between Spanish and English
   - Interesting to think informants might want to practice English
   
-## Our Home (pg 30)
+### Our Home (pg 30)
 
-- 
+- Paying any amount of rent?
+
+### Meeting the Presidente (pg 32)
+
+- Offered to teach english classes to bring service to the community
+- Indiana is close to Chicago (sounds familiar haha)
+- Mezcal! 
+- Informants may change their minds!
+- Oooh, gender inequality in rural Santa Ana
+
+### Setting up our Home (pg 37)
+
+- Water was not potable
+
+### The Challenges of Daily Life (pg 37)
+
+- The toilet that was 100 yards away
+- Scorpions?!
+- "Heads full of Spanish"
+- Nightly notes
+  - Daily diary-like entries recording observations
+  - Anthropological notes through critical themes
+  - Personal: reflecting on sense of self
+
+### Conclusions
+
+- Pablo was an intermediary
+
+### Thoughts
+
+- What a great read! I feel like this is the type of work that
+  is actually enjoyable to read which allows me to learn at
+  the same time. Other stuff I've been reading has been a slog. 
