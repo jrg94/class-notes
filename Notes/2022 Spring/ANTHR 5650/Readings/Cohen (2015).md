@@ -123,7 +123,7 @@ Pages 1 - 18
   - Anthropological notes through critical themes
   - Personal: reflecting on sense of self
 
-### Conclusions
+### Conclusions (pg 40)
 
 - Pablo was an intermediary
 
@@ -131,4 +131,37 @@ Pages 1 - 18
 
 - What a great read! I feel like this is the type of work that
   is actually enjoyable to read which allows me to learn at
-  the same time. Other stuff I've been reading has been a slog. 
+  the same time. Other stuff I've been reading has been a slog.
+- That said, not much to say. First contact seems intense. I'm
+  wondering what the transition looks like. 
+- The story about eating soup with a spoon just clicked for me!
+
+## Chapter 2: The First Month and First Steps (pg 42)
+
+### From Entry to Real Life (pg 42)
+
+- Culture shock
+- "Seldom lucid" ???
+
+### Daily Life and Fieldwork (pg 43)
+
+- Maria didn't actually want to do fieldwork
+- Hard to make sense of interview data without a feel for context
+- Cultural norms: must have kids if married
+- No way they met gender norms
+- Hyperaware of advantages as middle class Americans
+
+### Introducing Mauro's Gringos
+
+- Identity: los gringos de Mauro
+- Going to a wedding: needed a gift
+- Weddings go on for days!
+- Eating soup without a spoon! (they can't eat yet!)
+
+### The Tensions Around Ethnography (pg 51)
+
+- 
+
+### Thoughts
+
+- Anthropology sounds both fun and scary!
