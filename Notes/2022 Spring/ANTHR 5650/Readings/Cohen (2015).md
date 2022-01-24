@@ -160,6 +160,13 @@ Pages 1 - 18
 
 ### The Tensions Around Ethnography (pg 51)
 
+- It's fun to have a dense anthropologist join you from time to time
+- You don't need a spoon to eat soup
+- Santaneros migrate to the US after getting married
+
+### Culture and Fieldwork
+
+- Definition of culture! That is helpful.
 - 
 
 ### Thoughts
