@@ -78,6 +78,13 @@ Ahmed, S. (2012). On being included. Duke University Press.
 
 ### Diversity Strategies (pg 73)
 
+- Switching = switching languages
+- Use data to convince
+
+### Diversity in Conversation
+
+- Diversity in mission statements but that's it
+- Diversity has no agreed understanding like equity
 
 ### Thoughts
 
@@ -88,4 +95,50 @@ Ahmed, S. (2012). On being included. Duke University Press.
   "diversity" is a safe term to get people into the work but
   not a great term for doing the hard work is insightful.
 
+## Chapter 3: Equality and Performance Culture
 
+- We are good at race equality
+- An efficiency model
+
+### Documenting Diversity
+
+- Documents become a "fetish"
+- Documents authority can be deferred as they are derivative
+- Consultation?
+- Repackaging?
+- The document is a paper trail
+
+### Equality and Audit
+
+- Diversity and equity are auditable
+- Audits are good
+  - Force universities into action
+- Audits are bad
+  - Create a culture around audits
+- Audits pose risks to reputation
+
+### Good Practice
+
+- Excellence is empty of content
+
+## Chapter 4: Commitment as a Non-performative
+
+- "Hearts & Minds"
+
+### Statements of Commitment
+
+- These statements are opaque
+- What are they doing?
+- Non-performative
+  - Practice that does not work
+  - Words that do nothing?
+  - Not bringing into effect
+- Commitment is opaque
+- Commitment may block action (already committed)
+- Saying diversity is a way of not doing it
+
+### Committees and Commitments
+
+- Committees are conversations spaces
+- Time is crucial
+  - A pledge of future resources
