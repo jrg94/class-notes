@@ -26,3 +26,7 @@ Boatright-Horowitz, S. L., Marraccini, M., & Harps-Logan, Y. (2012).
 ## Conclusion
 
 ## Thoughts
+
+- The idea of students giving bad teacher reviews over being taught
+  white supremacy is a funny one to me. I'd totally take that as a
+  badge of honor. 
