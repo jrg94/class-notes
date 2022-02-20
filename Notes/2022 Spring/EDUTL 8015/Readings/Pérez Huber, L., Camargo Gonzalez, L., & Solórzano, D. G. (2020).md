@@ -6,6 +6,10 @@ about people of color. Urban Education, 0042085920963713.
 
 ## Abstract
 
+- Children's literature lacks people of color. Critical Content Analysis
+  is used for examing literature. Combining CRT and CCA, we get Critical
+  Race Content Analysis. 
+
 ## Introduction
 
 ## Critical Race Theory

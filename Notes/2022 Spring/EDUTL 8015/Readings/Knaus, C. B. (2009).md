@@ -5,6 +5,11 @@ in the classroom. Race Ethnicity and Education, 12(2), 133-154.
 
 ## Abstract
 
+- This is the only application article from the set. The setting is
+  urban elementary schools and the focus is on using CRT in the
+  classroom. The goal is to center student voice rathe than
+  high-stakes pressures. 
+
 ## Introduction
 
 ## Mirrored Reflections
