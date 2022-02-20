@@ -15,6 +15,13 @@ Hiraldo, P. (2010). The role of critical race theory in higher education. The Ve
 
 ## The Relevance of the Five Tenets of CRT within Higher Education
 
+- The Five Tenets
+  1. Counter-storytelling
+  2. The permanence of racism
+  3. Whiteness as property
+  4. Interest conversion
+  5. Critique of liberalism
+
 ## Criticism of CRT
 
 ## Conclusion
