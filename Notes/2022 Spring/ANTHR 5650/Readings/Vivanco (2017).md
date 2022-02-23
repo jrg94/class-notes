@@ -78,3 +78,34 @@ Vivanco, L. A. (2016). Field notes: A guided journal for doing anthropology. Oxf
   I'm thinking about is pulling students of to the
   side to discuss achievements with them to get
   a feel for their ideologies around success.  
+
+## Chapter 3: Fieldwork Values and Ethics
+
+- Gathering data is not a value-neutral activity
+- Anthroplogy is distrusted due to colonialism
+- Do no harm
+- Be open and honest regarding your own work
+- Rules are inflexible! (I love this)
+- IRB is important
+
+## Chapter 4: Taking Notes
+
+- What do anthropologists do? They write!
+- Note taking is an interpetive activity
+  - We have to make decisions about what we think is important and what might not be
+  - Therefore, notes are only a small representation of actual people's lives
+- Field notes can be taken during or directly after an event (for memory's sake)
+- Field notes are for the "future self"
+- Key principles of note taking include
+  - Jotting down background information
+  - Describe instead of summarize
+  - Do not generalize
+  - Do not project emotions into the work
+  - Jot down intuitions
+  - Jot down questions that you have
+- Always practice note taking
+
+### Thoughts
+
+- The more I read about anthropology, the more it reminds me of programming
+- This idea of the future self is so prevalent in development
