@@ -128,3 +128,33 @@ Vivanco, L. A. (2016). Field notes: A guided journal for doing anthropology. Oxf
 - This idea of the future self is so prevalent in development
 
 ## Chapter 5: Observing
+
+- Observing is more than people watching
+- Go to a public place and take notes about what is happening there (homework 6)
+- Engage the 5 senses
+- Focus on areas of interest
+- Pick a focus ahead of time
+  - e.g., an activity, a place, a group, a phenomenon, etc.
+- Use concrete language (e.g., gender, race, etc.) not general terms
+
+### Combining Observation and Participatio
+
+- The participatory approach becomes autoethnographic 
+- "Step out to use the bathroom" (I love this)
+- Head notes are important in this context
+
+### Thoughts
+
+- Observations became very weird to me in this chapter
+- There are a lot of assumptions we have to make about the people
+  we are observing.
+- How do we note down a gender without making an assumption? Do we ask? Seems intrusive. 
+- I understand the purpose, but this leans into some troubling territory!
+- Surely, folks would understand if your description did not map to their identity.
+- Lots to think about!
+- The author notes that the line between observation and participation is murky.
+  I would imagine so.
+- When we were asked to note down a conversation we had with someone, I did
+  it after the fact. I was worried this was a bad idea, but the author
+  mentions that this is just a reconstruction of head notes. I'm feeling
+  somewhat validated now. 
