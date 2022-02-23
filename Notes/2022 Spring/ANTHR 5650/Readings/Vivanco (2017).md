@@ -192,3 +192,29 @@ Vivanco, L. A. (2016). Field notes: A guided journal for doing anthropology. Oxf
   - You don't necessarily know what questions to ask
   - You don't know how to order those questions
 - Ethnographers care more about open-ended interviews
+
+### Asking Questions to Get People Talking
+
+- Think about:
+  - Be clear about intentions
+  - Be prepared
+  - Have a mental framework for questions
+    - e.g., past-present-future framework
+  - Think about good questions
+  - Frame a good question
+    - e.g., don't use yes or no questions
+  - Use direct questions sparingly
+    - Probe around the topic
+  - Know how to keep going and when to stop
+
+### Whom to Interview?
+
+- Types of people:
+  - Gatekeepers
+  - Self-selected individuals
+  - Reflective individuals
+  - Knowledge keepers
+
+### Thoughts
+
+- Now this is a useful chapter! It will help me in my research.
