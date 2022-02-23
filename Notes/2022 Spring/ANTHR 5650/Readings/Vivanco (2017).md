@@ -104,8 +104,27 @@ Vivanco, L. A. (2016). Field notes: A guided journal for doing anthropology. Oxf
   - Jot down intuitions
   - Jot down questions that you have
 - Always practice note taking
+- Grow your descriptive vocabulary
+
+### "Head Notes": Remembering, Elaborating, and Filling in from Memory
+
+- A return to the scene where you incorporate things you remeber later
+
+### Notes on Spoken and Nonverbal Communication
+
+- Use as much of the actual phrasing as possible
+- Don't forget to include body language, facial expressions, etc.
+
+### Other Notes
+
+- Sketches: vivid details of a scene
+- Episodes: chronological events
+- Tales: a combination of episodes and sketches
+- Also, ethnographers collect documents as well
 
 ### Thoughts
 
 - The more I read about anthropology, the more it reminds me of programming
 - This idea of the future self is so prevalent in development
+
+## Chapter 5: Observing
