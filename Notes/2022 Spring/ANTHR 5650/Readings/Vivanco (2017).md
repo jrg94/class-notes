@@ -158,3 +158,37 @@ Vivanco, L. A. (2016). Field notes: A guided journal for doing anthropology. Oxf
   it after the fact. I was worried this was a bad idea, but the author
   mentions that this is just a reconstruction of head notes. I'm feeling
   somewhat validated now. 
+
+## Chapter 6: Listening
+
+- "Listening is not just about being on the receiving end of sound"
+- Listening is an active process
+  - Concentrate
+  - Be empathetic
+  - Be patient
+  - Focus on tone
+
+### Acoustic Environments
+
+- Relationships between places and the sounds in them matter
+  - e.g., what does a library sound like? How about a classroom?
+
+### Thoughts
+
+- We trickled into boomer territory with the take on listening
+- This chapter was extremely short. I would have loved to learn more about
+  how to listen properly. As a musician, this is an important skill that
+  I think was overlooked.
+
+## Chapter 7: Asking Questions
+
+- Be sensitive of context (i.e., what to ask when)
+- Approaches to question asking:
+  - Surveys
+  - Interviews (formal, open-ended)
+  - Conversations
+  - Group interviews
+- Surveys are limited:
+  - You don't necessarily know what questions to ask
+  - You don't know how to order those questions
+- Ethnographers care more about open-ended interviews
